@@ -4,11 +4,3 @@
 </p>
 <p>
 'when you're being mean to me this is who you're being mean to ☹ <br>
-<br>
-<br>
-<br>
-<br>
-
-
-(changing profile theme again, im weird I know)
-</p>
